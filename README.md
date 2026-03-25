@@ -1,3 +1,4 @@
-# Portal Oficial
-LANÇAMENTOS DE SÁBADO! As melhores plataformas validadas com saques rápidos:
-SLOTS Lembre-se de jogar com responsabilidade!
+# LANÇAMENTOS DE SABÁDO!
+As melhores plataformas validadas com saques rápidos:
+
+Lembre-se de jogar com responsabilidade!
